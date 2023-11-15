@@ -1,2 +1,2 @@
 i love myself 
-i love you so much
+i miss myself
